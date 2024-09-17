@@ -1,5 +1,7 @@
 ## Insights
- <img src="![Thumbnail 1](https://github.com/user-attachments/assets/09e9d0cf-1ae9-44d1-8bcd-8dcaf09146ba)" width="30" >
+![Thumbnail 1](https://github.com/user-attachments/assets/88ea80b5-3360-4c5c-bd46-007d705d9d96)
+![Thumbnail 2](https://github.com/user-attachments/assets/925fad52-1f7e-4b88-9e58-6a2d670a4ed9)
+
 
 ## 📋 <a name="table">Table of Contents</a>
 
