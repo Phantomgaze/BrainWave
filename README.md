@@ -1,3 +1,6 @@
+## Insights
+![Thumbnail 1 width=30%](https://github.com/user-attachments/assets/d2d2ae91-7e8c-4872-92e9-302873371a95)![Thumbnail 2](https://github.com/user-attachments/assets/3aa31e9a-a94a-4cbc-96eb-46cf764f51e0)
+
 
 ## 📋 <a name="table">Table of Contents</a>
 
